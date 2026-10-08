@@ -16,7 +16,7 @@
   
   <p>
     <img src="https://file.garden/aeWblX8drAn4J6VK/icecream.gif" width="50" />
-    <span style="display: inline-block; text-align: left; vertical-align: middle; margin-left: 8px;">
+    <span style="display: inline-block; text-align: left; vertical-align: middle; margin-left: 1px;">
 heklooiiiiiiiii
     </span>
   </p>
