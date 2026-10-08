@@ -1,6 +1,6 @@
 <div align="center">
   
-| <img src="https://file.garden/aeWblX8drAn4J6VK/icecream.gif" width="50"> | 这位用户喜欢热乎乎的食物 ㅤ**♡**~~🥞~~|
+| <img src="https://file.garden/aeWblX8drAn4J6VK/pancake.gif" width="50"> | 这位用户喜欢热乎乎的食物 ㅤ**♡**~~🥞~~|
 |------|------|
 
 
