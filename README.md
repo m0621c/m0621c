@@ -7,8 +7,10 @@
 <img src="https://file.garden/aeWblX8drAn4J6VK/Untitled339_20261008154342.png" width="220">ㅤ<img src="https://file.garden/aeWblX8drAn4J6VK/Untitled339_20261008153810.png" width="365">
 
 ⠀⠀      ㅤ 
- $\color{red}{\text{໑}}$ㅤ <img src="https://file.garden/aeWblX8drAn4J6VK/image44.gif" width="60"> $\color{red}{\text{ ׄㅤ}}$ㅤㅤ<ins>**꒱** </ins>ㅤ $\color{#721D14}{\mathbf{⊹ }}\color{#A54327}{\mathbf{ ࣪}}\color{#F3783D}{\mathbf{ㅤ˖}}$ㅤㅤㅤ ۟    兼ㅤㅤㅤ ֹ ㅤ🧇⃝ㅤ ֹ  ۪   
- ㅤㅤㅤㅤㅤㅤㅤㅤㅤ⊹  𓈒   ۫  ﹙𝗴𝖺𝗋𝕕𝖾𝗇﹚   ۪    ֹ  $\color{red}{\text{ਏਓ}}$
+ $\color{red}{\text{໑}}$ㅤ <img src="https://file.garden/aeWblX8drAn4J6VK/2837.gif" width="20">ㅤ $\color{red}{\text{ ׄㅤ}}$ㅤㅤ**꒱** $\color{#721D14}{\mathbf{⊹ }}\color{#A54327}{\mathbf{ ࣪}}\color{#F3783D}{\mathbf{ㅤ˖}}$ ۟ ~~ᵒʳ~~ 𝑭uanㅤㅤ**🧇⃝** ㅤ真**好吃！** ֹ ㅤ ۪   
+ ㅤㅤㅤㅤㅤㅤㅤㅤ
+ |ㅤ⊹  𓈒   ۫  ﹙𝗴𝖺𝗋𝕕𝖾𝗇﹚   ۪    ֹ  $\color{red}{\text{ਏਓ}}$ |
+ |------:|
                
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ <a href="https://rentry.co/suaressi">
 <img src="https://file.garden/aeWblX8drAn4J6VK/Untitled339_20261008115114.png" width="200"> </a>
