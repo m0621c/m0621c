@@ -9,8 +9,7 @@
 ⠀⠀      ㅤ 
  $\color{red}{\text{໑}}$ㅤ <img src="https://file.garden/aeWblX8drAn4J6VK/brown-079.gif" width="20">ㅤ~~ᵒʳ~~ㅤ $\color{#721D14}{\mathbf{Ni}}\color{#A54327}{\mathbf{co}}$ $\color{red}{\text{ ׄㅤ}}$ **꒱** ㅤ $\color{#721D14}{\mathbf{⊹ }}\color{#A54327}{\mathbf{ ࣪}}\color{#F3783D}{\mathbf{ㅤ˖}}$ ۟ㅤ真**好吃**ㅤ ֹ ㅤㅤ. ㅤ   
  ㅤㅤㅤㅤㅤㅤㅤㅤ
- |ㅤ⊹  𓈒   ۫  ﹙𝗴𝖺𝗋𝕕𝖾𝗇﹚   ۪    ֹ  $\color{red}{\text{ਏਓ}}$ |
- |------:|
+ ㅤ⊹  𓈒   ۫  ﹙ㅤhel<ins>lo </ins>ㅤ﹚   ۪    ֹ  $\color{red}{\text{ਏਓ}}$ 
                
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ <a href="https://rentry.co/suaressi">
 <img src="https://file.garden/aeWblX8drAn4J6VK/Untitled339_20261008115114.png" width="200"> </a>
