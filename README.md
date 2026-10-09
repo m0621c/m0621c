@@ -4,8 +4,7 @@
 |------|------|
 
 
-<img src="https://file.garden/aeWblX8drAn4J6VK/Untitled339_20261008154342.png" width="230"> ㅤ<img src="https://file.garden/aeWblX8drAn4J6VK/Untitled339_20261008153810.png" width="365">
-<span style="display: inline-block; text-align: left; vertical-align: middle; margin-left: 8px;">
+<img src="https://file.garden/aeWblX8drAn4J6VK/Untitled339_20261008154342.png" width="220"> ㅤ<img src="https://file.garden/aeWblX8drAn4J6VK/Untitled339_20261008153810.png" width="365">
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ <a href="https://rentry.co/suaressi">
 <img src="https://file.garden/aeWblX8drAn4J6VK/Untitled339_20261008115114.png" width="200"> </a>
