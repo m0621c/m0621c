@@ -9,7 +9,7 @@
 ⠀⠀      ㅤ 
  $\color{red}{\text{໑}}$ <img src="https://file.garden/aeWblX8drAn4J6VK/icecream.gif" width="40">ㅤ~~ᵒʳ~~ㅤ $\color{#721D14}{\mathbf{Ni}}\color{#A54327}{\mathbf{co}}$ $\color{red}{\text{ ׄㅤ}}$  $\color{#721D14}{\mathbf{⊹ }}\color{#A54327}{\mathbf{ ࣪}}\color{#F3783D}{\mathbf{ㅤ˖}}$ ۟ㅤ中国**人**ㅤ ֹ ㅤㅤ. ㅤ   
 
- ㅤ $\color{red}{\text{♡}}$ㅤ ۫ㅤ.ㅤ $\color{red}{\text{⑭}}$**↑**  $\color{#721D14}{\mathbf{⊹}}\color{#A54327}{\mathbf{  𓈒 }}$  ۫   ﹙ㅤ𝘄a<ins>rm </ins>ㅤ﹚  ۪  $\color{red}{\mathbf{ ֹ  }}$ <img src="https://file.garden/aeWblX8drAn4J6VK/2837.gif" width="25">
+ ㅤ $\color{red}{\text{♡}}$ㅤ ۫ㅤ.ㅤ $\color{red}{\text{⑭}}$**↑**  $\color{#721D14}{\mathbf{⊹}}\color{#A54327}{\mathbf{  𓈒 }}$  ۫   ﹙ㅤ𝘄a<ins>rm </ins>ㅤ﹚  ۪  $\color{#F4E4BC}{\mathbf{ ֹ  }}$ <img src="https://file.garden/aeWblX8drAn4J6VK/2837.gif" width="25">
                
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ <a href="https://rentry.co/suaressi">
 <img src="https://file.garden/aeWblX8drAn4J6VK/Untitled339_20261008115114.png" width="200"> </a>
