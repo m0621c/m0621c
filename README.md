@@ -7,7 +7,7 @@
 <img src="https://file.garden/aeWblX8drAn4J6VK/Untitled339_20261008154342.png" width="220">ㅤ<img src="https://file.garden/aeWblX8drAn4J6VK/Untitled339_20261008153810.png" width="365">
 
 ⠀⠀       <img src="https://file.garden/aeWblX8drAn4J6VK/pancake.gif" width="35"> ㅤ 
- $\color{red}{\text{໑}}$ㅤ $\color{red}{\text{ ׄㅤ}}$ㅤㅤ꒱ㅤㅤ$\color{#721D14}{\mathbf{⊹ }}\color{#A54327}{\mathbf{ ࣪}}\color{#F3783D}{\mathbf{˖}}$ㅤㅤㅤ ۟    兼ㅤㅤㅤ ֹ ㅤ🧇⃝ㅤ ֹ ㅤㅤ  ۪   
+ $\color{red}{\text{໑}}$ㅤ $\color{red}{\text{ ׄㅤ}}$ㅤㅤ꒱ㅤㅤ $\color{#721D14}{\mathbf{⊹ }}\color{#A54327}{\mathbf{ ࣪}}\color{#F3783D}{\mathbf{˖}}$ㅤㅤㅤ ۟    兼ㅤㅤㅤ ֹ ㅤ🧇⃝ㅤ ֹ ㅤㅤ  ۪   
  ㅤㅤㅤㅤㅤㅤㅤㅤㅤ⊹  𓈒   ۫  ﹙𝗴𝖺𝗋𝕕𝖾𝗇﹚   ۪    ֹ  ਏਓ  
                
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ <a href="https://rentry.co/suaressi">
