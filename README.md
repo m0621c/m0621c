@@ -6,6 +6,9 @@
 
 <img src="https://file.garden/aeWblX8drAn4J6VK/Untitled339_20261008154342.png" width="220">ㅤ<img src="https://file.garden/aeWblX8drAn4J6VK/Untitled339_20261008153810.png" width="365">
 
+⠀⠀       <img src="https://file.garden/aeWblX8drAn4J6VK/pancake.gif" width="35">   ໑  ׄ    ꒱ ㅤㅤㅤ  ۟    兼     ָ֢    ֹ  🏹⃝    ֹ   ۪   
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ⊹  𓈒   ۫  ﹙𝗴𝖺𝗋𝕕𝖾𝗇﹚   ۪    ֹ  ਏਓ  
+               
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ <a href="https://rentry.co/suaressi">
 <img src="https://file.garden/aeWblX8drAn4J6VK/Untitled339_20261008115114.png" width="200"> </a>
 
